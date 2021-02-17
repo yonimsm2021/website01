@@ -1,4 +1,4 @@
 # website01
-Assignment
-A computer programming class project
-HTML and CSS
+who needs to know about life
+who needs to know about jesus christ,holyspirit,God and trinity
+gives understanding about life and give knowledge
